@@ -1,1 +1,2 @@
-# theinternationale
+# The Internationale
+Let's Unite!
